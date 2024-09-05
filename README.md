@@ -18,7 +18,7 @@ Undergraduate student with a basic knowledge of Java, HTML, and CSS. Eager to le
 
 # Connect with Me
 
-Let's Connect and Share Insights! you can fine Me www.linkedin.com/in/jahnavi-chintakrindhi
+Let's Connect and Share Insights! you can find Me www.linkedin.com/in/jahnavi-chintakrindhi
 
 # Projects
 
